@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sensitivepanda96
-- 👀
+- 👀 Reach out to me on twitter at the handle _sensitivepanda
 - 🌱
 - 💞️
 - 📫
